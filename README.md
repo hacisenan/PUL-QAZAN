@@ -1,0 +1,2 @@
+# PUL-QAZAN
+BİZ BİRLIKDƏ GÜCLÜYUK
